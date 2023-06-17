@@ -1,4 +1,4 @@
-### Hi there, I'm Kate Kapustina - aka catyacapustina 👋
+### Hi there, I'm Kate Kapustina - catyacapustina 👋
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working at Yandex Technologies.
